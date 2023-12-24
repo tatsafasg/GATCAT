@@ -1,2 +1,2 @@
 # GAY CAT
-by GG HUB
+by me
